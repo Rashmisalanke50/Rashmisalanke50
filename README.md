@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Rashmisalanke50
+- 🚪 Background of Pharmacy and Hospital Administration
+- 🌻 Currently working on a Hospital Project in Bangalore
+- 👀 I’m interested in the Healthcare IT Revolution
+- 🌱 I’m currently learning data science
+- 💞️ I’m looking to collaborate on Health IT Startups
+- 📫 Find me on LinkedIn using https://www.linkedin.com/in/rashmi50?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3B18GbNwmJQSCyMFHENwy%2BHw%3D%3D
